@@ -1,4 +1,4 @@
-# About　Me
+<h1>About Me</h1>
 Thank you for visiting✨ I'm Akane, a UI/UX Designer based in Vancouver. 
 
 

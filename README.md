@@ -1,4 +1,4 @@
-# About
+# About　Me
 Thank you for visiting✨ I'm Akane, a UI/UX Designer based in Vancouver. 
 
 
